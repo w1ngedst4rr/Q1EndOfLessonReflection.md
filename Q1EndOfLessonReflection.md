@@ -1,4 +1,4 @@
-# Reflections
+# Reflections by AYES, Leian Sandhel A. From 9 - Potassium || September 22, 2025
 
 ## 1.) Topics I Know Well
 
